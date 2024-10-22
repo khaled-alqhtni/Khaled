@@ -1,2 +1,2 @@
 # Khaled
-majored in applied computer science and graduated from King Saud University.
+looking for job opportunities, with a bachelor’s degree in applied computer science from King Saud University.
